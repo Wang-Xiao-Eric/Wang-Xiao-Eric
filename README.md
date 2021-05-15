@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Wang-Xiao-Eric.
+- 👋 Hi, I’m @Xiao Wang
 - 👀 I’m interested in Macroeconomics.
 
 
